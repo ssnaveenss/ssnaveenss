@@ -27,7 +27,7 @@ I'm an Information Technology student passionate about building real-world tech 
 
 ### 📫 How to Reach Me
 
-- 📧 Email: `ssnaveenss@gmail.com`  
+- 📧 Email: `ssnaveen696@gmail.com`  
 - 💬 LinkedIn: [linkedin.com/in/ssnaveenss](https://www.linkedin.com/in/ssnaveenss)  
 
 ---
